@@ -1,4 +1,4 @@
-// to be redone
+// redo or delete
 
 what does it take to exist
 
