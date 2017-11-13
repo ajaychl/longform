@@ -1,4 +1,4 @@
-// redo or delete
+ // redo or delete
 
 what does it take to exist
 
@@ -14,4 +14,6 @@ if we try to take each characteristic separately:
 
 case I, everything we see around us exists and both conditions are met. but the universe as whole is present but is not perceivable to anything outside it ??have to read more on it?? so, does this universe not exist
 
-case II, ??how do we segregate information perceived?? ??why a perception backed by all is true but by one(thoughts) false?? ??is compounded perception necessary, or does everything we think of thus exist??
+case II, ??how do we segregate information perceived?? ??why a perception backed by all is true but by one(thoughts) false?? ??is compounded perception necessary, or does everything we think of thus exist?? we can only know if something exists through perception. 
+
+everything thought/present/perceived exists.
